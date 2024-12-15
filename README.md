@@ -1,3 +1,2 @@
-![0001](https://github.com/user-attachments/assets/f0d72312-182e-4b24-8c95-61741ce02aaf)
-![0002](https://github.com/user-attachments/assets/87c9b40b-f01c-415c-80c2-295bed5b10ba)
-
+![Beige True Friends Book Cover_page-0001](https://github.com/user-attachments/assets/f089bf5a-e106-473d-96ac-7ad98a322dc9)
+![Beige True Friends Book Cover_page-0002](https://github.com/user-attachments/assets/a02b8550-f0c1-490c-af9d-211fe23d8e37)
